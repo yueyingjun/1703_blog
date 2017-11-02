@@ -1,1 +1,1 @@
-# 1703_blog
+http://sdesigns.duapp.com/
