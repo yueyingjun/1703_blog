@@ -1,1 +1,1 @@
-http://lsblog.duqpp.com
+http://lsblog.duapp.com
