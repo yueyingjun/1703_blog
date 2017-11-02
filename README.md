@@ -1,1 +1,1 @@
-# 1703_blog
+http://zcproject.duapp.com/blog/index.php
