@@ -1,1 +1,1 @@
-# 1703_blog
+http://w1703boke.duapp.com/
