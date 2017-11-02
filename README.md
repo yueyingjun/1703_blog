@@ -1,1 +1,1 @@
-# 1703_blog
+http://xuehaoyu.duapp.com/blog/index.html
