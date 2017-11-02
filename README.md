@@ -1,1 +1,1 @@
-# 1703_blog
+http://blogseven.duapp.com/
