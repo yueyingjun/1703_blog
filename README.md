@@ -1,1 +1,1 @@
-# 1703_blog
+http://lsblog.duapp.com
