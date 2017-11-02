@@ -1,1 +1,1 @@
-# 1703_blog
+http://morantt.duapp.com/blog/index.php
