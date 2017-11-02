@@ -1,1 +1,1 @@
-# 1703_blog
+http://wblog1710.duapp.com/mvc/index.php
