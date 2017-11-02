@@ -1,1 +1,1 @@
-# 1703_blog
+http://niublog.duapp.com/blog/index.php
