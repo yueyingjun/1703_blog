@@ -1,1 +1,1 @@
-# 1703_blog
+http://lsblog.duqpp.com
