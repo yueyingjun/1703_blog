@@ -1,1 +1,1 @@
-# 1703_blog
+http://blog001.duapp.com/blog/index.php
